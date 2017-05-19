@@ -1,1 +1,4 @@
 # Year-of-birth-assignment
+AGABA PAULINE
+16/U/2423
+B.SC. ELECTRICAL ENGINEERING
